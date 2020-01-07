@@ -9,66 +9,94 @@ title: calendar
 
 **Due:** 
 
-# 2. January 21, 2019: Revolutions 1
+# Origins of Revolution
+
+## 2. January 21, 2019: Lecture/Discussion
 
 **Readings:**
 
-**Due:** 
+**Due:** Précis
 
 
-# 3. January 28, 2019: Revolutions 2
+## 3. January 28, 2019: ¡Que Viva México!
 
 **Readings:**
 
-**Due:** Weekly Report
+**Due:** Précis
 
-# 4. February 4, 2019: 
+## 4. February 4, 2019: Soy Cuba
 
 **Readings:** 
 
-**Due:** Weekly Report
+**Due:** Précis
 
-# 5. February 11, 2019: 
+# The City
 
-**Readings:**
-
-**Due:** Weekly Report
-
-# 6. February 18, 2019: 
+## 5. February 11, 2019: On the City Lecture/Discussion
 
 **Readings:**
 
-# 7. February 25, 2019: 
+**Due:** Revolutions Paper, Précis
+
+## 6. February 18, 2019: Cidade de Deus
 
 **Readings:**
 
-# 8. March 3, 2019: 
+**Due**: Précis, Topic+Films
+
+
+## 7. February 25, 2019: Bus 174
 
 **Readings:**
 
-# 9. March 10, 2019: 
+**Due**: Précis
 
-# 10. March 17, 2019: Rest
-
-
-# 11. March 24, 2019: 
+## 8. March 3, 2019: Counterrevolution and Dirty Wars
 
 **Readings:**
 
-# 12. March 31, 2019
+**Due**: City Paper, Précis 
+
+## 9. March 10, 2019: Roma
+
+Readings: 
+
+**Due**: Précis 
+
+## 10. March 17, 2019: Rest
+
+It's Spring Break. I hope that you're taking a break, for at least most of the
+week. Then, get back to work people.
+
+## 11. March 24, 2019: The Violin
 
 **Readings:**
 
-# 13. April 7, 2019
+**Due**: Précis, Final Project Bibliography
+
+## 12. March 31, 2019: Indigenous and Modern
 
 **Readings:**
 
-# 14. April 14, 2019
+**Due**: Counterrevolutions Paper, Précis
+
+## 13. April 7, 2019: Birds of Passage
 
 **Readings:**
 
-# 15. April 21
+**Due**: Précis
+
+## 14. April 14, 2019: Ixcanul
 
 **Readings:**
+
+**Due**: Précis
+
+## 15. April 21: Discussion of your projects
+
+**Due**: Indigenous Modernities Paper
+
 
 # FINAL Project DUE 
+
+
