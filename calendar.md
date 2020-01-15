@@ -18,7 +18,8 @@ title: calendar
 1. Chasteen, Born in Fire, Ch. 6-7.
 2. Donald F. Stevens, *Based on a True Story: Latin American History at the
    Movies*, Intro and Chapter 1.
-3. Tom Gunning, “Making Sense of Film.”
+3. [Tom Gunning, “Making Sense of
+   Film.”](http://historymatters.gmu.edu/mse/film/)
 
 **Due:** Précis on the three!
 
