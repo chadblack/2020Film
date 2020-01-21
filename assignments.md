@@ -14,7 +14,7 @@ title: assignments
    For each assigned reading aside from the text book, students must write
    a research précis to be turned in on the day that reading is assigned.
    Instructions for how to write a research précis are available
-   [here](http://chadblack.net/LatAmSport2019/memo/). You do not have to
+   [here](https://chadblack.net/LatAmSport2019/memo/). You do not have to
    write the full memo, but I would encourage you to do so for readings
    that support your final project.
 
