@@ -70,7 +70,7 @@ title: calendar
 
 **Readings:**
 
-1. “I saw a City Invincible” pgs xi – 57.
+1. “I saw a City Invincible” pgs xi – 31.
 
 **Due**: Précis
 
