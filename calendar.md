@@ -162,6 +162,6 @@ week. Then, get back to work people.
 **Due**: Indigenous Modernities Paper
 
 
-# FINAL Project DUE  -- April 30th!!
+# FINAL Project DUE  -- May 1st!!
 
 
