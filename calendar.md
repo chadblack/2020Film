@@ -153,11 +153,11 @@ week. Then, get back to work people.
 
 **Due**: Précis
 
-## 15. April 21: Discussion of your projects
+## 15. April 21: Zoom office hours to discuss final projects
 
 **Due**: Indigenous Modernities Paper
 
 
-# FINAL Project DUE 
+# FINAL Project DUE  -- April 30th!!
 
 
