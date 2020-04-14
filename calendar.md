@@ -70,7 +70,7 @@ title: calendar
 
 **Readings:**
 
-1. “I saw a City Invincible” pgs xi – 57.
+1. “I saw a City Invincible” pgs xi – 31.
 
 **Due**: Précis
 
@@ -80,7 +80,9 @@ title: calendar
 
 1. Thomas C. Wright, “Chile Under State Terrorism,” in State Terrorism in Latin America. Chile, Argentina, and International Human Rights (Lanham: Rowman & Littlefield Publishers, 2007), pp. 47-94.
 
-**Due**: City Paper, Précis 
+**Due**: Précis 
+
+**City Paper due March 8.**
 
 ## 9. March 10, 2019: Roma
 
@@ -121,7 +123,9 @@ week. Then, get back to work people.
 3. John Charles Chasteen, "Atlantic World," Chapter 3 in *Getting High:
    Marijuana through the Ages* (Rowman & Littlefield, 2016).
 
-**Due**: Counterrevolutions Paper, Précis
+**Due**: Précis.
+
+**Counterrevolutions Paper due no later than April 5th.**
 
 ## 13. April 7, 2019: Birds of Passage
 
